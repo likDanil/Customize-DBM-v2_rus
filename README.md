@@ -9,3 +9,4 @@
 <br><br>
 
 Сервер DBM Brazil: https://discord.gg/KfrffKXxbb
+Сервер переводчика: https://discord.gg/g2TX5YHCz2
